@@ -1,0 +1,1 @@
+The film follows Kalai, a youngster, who pursues his dream of becoming an actor while facing various obstacles. Initially, Harish Kalyan was cast in the lead role, but he was subsequently replaced by Kavin.
